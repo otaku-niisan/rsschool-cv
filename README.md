@@ -1,3 +1,3 @@
-https://otaku-niisan.github.io/rsschool-cv/cv
+https://otaku-niisan.github.io/rsschool-cv/
 
 Link to CV
